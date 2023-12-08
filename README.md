@@ -1,4 +1,3 @@
-mueyyeobo.github.io
 Samuel B. Dautil
 
 ### ***TWINKLING WATERMELON***
