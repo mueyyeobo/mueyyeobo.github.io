@@ -80,12 +80,12 @@ Twice 5th World Tour "Ready to Be" is the third worldwide concert tour and the f
 [![setmefree](https://img.youtube.com/vi/-J-sS1Vp7G8/maxresdefault.jpg)](https://www.youtube.com/watch?v=-J-sS1Vp7G8)
 
 ## TWICE IN THEIR SOLD OUT CONCERT IN SOFI STADIUM IN LOS ANGELES, CA
-[![setmefree](https://img.youtube.com/vi/wSSIFUm-2G4/maxresdefault.jpg)](https://www.youtube.com/watch?v=wSSIFUm-2G4)
+[![Video](https://img.youtube.com/vi/wSSIFUm-2G4/hqdefault.jpg)](https://www.youtube.com/watch?v=wSSIFUm-2G4)
 ![image](https://github.com/mueyyeobo/mueyyeobo.github.io/assets/152352661/e618a142-f4e7-4a6e-a286-4e4485fc0e13)
 70,000+ people 
 
 ## TWICE IN THEIR SOLD OUT CONCERT IN PH ARENA
-[![setmefree](https://img.youtube.com/vi/jut1g_mKHBM/maxresdefault.jpg)](https://www.youtube.com/watch?v=jut1g_mKHBM)
+[![Video](https://img.youtube.com/vi/jut1g_mKHBM/maxresdefault.jpg)](https://www.youtube.com/watch?v=jut1g_mKHBM)
 ![image](https://github.com/mueyyeobo/mueyyeobo.github.io/assets/152352661/48f81d28-4b09-43ef-9cec-cd70d44c9712)
 81,000+ people on their 2-day concert
 
