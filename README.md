@@ -94,6 +94,7 @@ Twice 5th World Tour "Ready to Be" is the third worldwide concert tour and the f
 
 ### THIS IS YOUR SIGN TO STAN TWICE!!!!
 
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wSSIFUm-2G4?si=0-C7TER5VanJQsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 
 
